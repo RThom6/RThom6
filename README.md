@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @RThom6
-- 👀 I’m interested in @RThom6
+# Welcome to my profile
+Currently all of my work is privated as I would be subject to plagiarism at University otherwise
